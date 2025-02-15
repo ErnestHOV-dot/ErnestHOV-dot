@@ -1,16 +1,14 @@
-## Hi there 👋
+## Hello, I'm Ernest 
 
-<!--
-**ErnestHOV-dot/ErnestHOV-dot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- A 22-years-old IT-specialist (Tech Support Engineer) based in Russia, Company VK.
 
-Here are some ideas to get you started:
+## 🧗
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 2025.
+
+## Contact
+
+ For a quick response, text me on [TG](https://t.me/slkhvernest/). 
+ 
+ For professional inquiries, reach out via email at [ernestsalakhov404@gmail.com](mailto:ernestsalakhov404@gmail.com). 
+
