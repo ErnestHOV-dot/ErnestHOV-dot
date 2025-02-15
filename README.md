@@ -1,7 +1,7 @@
 ## Hello, I'm Ernest 
 
 - A 22-years-old IT-specialist (Tech Support Engineer) based in Russia, Company VK.
-
+- ITMO / CyberSecurity
 ## 🧗
 
 - 2025.
