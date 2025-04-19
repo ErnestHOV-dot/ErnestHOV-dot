@@ -2,8 +2,8 @@
 
 - A 23-years-old IT-specialist (Tech Support Specialist) based in Russia, Company VKontakte.
 - ITMO / CyberSecurity
-## 🧗
-2025.
+  🧗
+
 
 ## Contact
 
