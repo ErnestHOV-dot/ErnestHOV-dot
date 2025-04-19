@@ -1,6 +1,6 @@
 ## Hello, I'm Ernest 
 
-- A 23-years-old IT-specialist (Tech Support Engineer) based in Russia, Company VKontakte.
+- A 23-years-old IT-specialist (Tech Support Specialist) based in Russia, Company VKontakte.
 - ITMO / CyberSecurity
 ## 🧗
 2025.
