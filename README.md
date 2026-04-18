@@ -9,5 +9,5 @@
 
  For a quick response, text me on [telegram](https://t.me/slkhvernest/). 
  
- For professional inquiries, reach out via email at [ernestsalakhov404@gmail.com](mailto:ernestsalakhov404@gmail.com). 
+ For professional inquiries, reach out via email at [e.salakhov@vkteam.ri](mailto:e.salakhov@vkteam.ru). 
 
